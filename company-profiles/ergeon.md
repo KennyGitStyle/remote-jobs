@@ -18,6 +18,8 @@ We are an all-remote company. We have a fast growing and diverse team spread acr
 
 We have employees worldwide. 
 
+I want to join.
+
 ## Office locations
 
 Palo Alto, California
